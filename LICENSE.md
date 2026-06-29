@@ -1,4 +1,4 @@
-#  
+#  aura ascension Script advanced is the best aura ascension Script, featuring auto-sell and silent aim. Safe and powerful for all your needs.
 
 
 
